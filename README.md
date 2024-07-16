@@ -1,1 +1,0 @@
-# grupodematematica-ramathbmhdz
